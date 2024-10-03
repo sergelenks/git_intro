@@ -1,2 +1,1 @@
 Serg Tsogtbaatar
-3
